@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PREETCOIN
 - 👀 I’m interested in ...REALTY
 - 🌱 I’m currently learning ...COMPTROLLER
-- 💞️ I’m looking to collaborate on ...ASSASSIN
+- 💞️ I’m looking to collaborate on ...HIER-A-HITMAN
 - 📫 How to reach me ...W-BEN651577843
   06061979
 <!---
