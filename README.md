@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...REALTY
 - 🌱 I’m currently learning ...COMPTROLLER
 - 💞️ I’m looking to collaborate on ...HIER-A-HITMAN
-- 📫 How to reach me ...W-BEN-E651577843
+- 📫 How to reach me ...W-8BEN-E651577843
   06061979
 <!---
 PREETCOIN/PREETCOIN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
